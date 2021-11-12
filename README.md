@@ -3,7 +3,7 @@
 
 而我非常幸运，通过朋友推荐知道这款非常好用的歪皮恩加速器。所以，推荐给有需要的朋友使用。
 
-传送门：[点击链接](https://oplktunm.com/auth/register?code=GIPS)
+传送门：[点击链接](https://yunjuting.com/auth/register?code=GIPS)
 
 ## 什么是歪皮恩 ##
 歪皮恩就是我们所说的VPN。它可以帮助我们[上外网](https://github.com/Tonyforfun94/P-zhan)。包括可以让我们使用Facebook，Google，Youtube这些在国内无法使用的软件。使用了歪皮恩之后，我们就可以访问这些软件了。
@@ -18,4 +18,4 @@
 
 推荐一款我已经用了2年多的歪皮恩给大家。这个歪皮恩使用起来速度非常宽，并且非常安全。
 
-靠谱的歪皮恩：[点击链接](https://oplktunm.com/auth/register?code=GIPS)
+靠谱的歪皮恩：[点击链接](https://yunjuting.com/auth/register?code=GIPS)
